@@ -3,5 +3,5 @@
 <p>писать по хуйне по делу чс</p>
 <img src="HI_k7F1XsAAzcSh.jpg" width="200" />
 <p>фулиш 22 он/оно</p>
-<p><a href="https://t.me/id3gwej">тг</a> рентри</p>
+<p><a href="https://t.me/id3gwej">тг</a> <a href="https://rentry.co/idgafer157">рентри </p>
 </div>
